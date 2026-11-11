@@ -132,8 +132,8 @@ I'm interested in learning, sharing ideas, and collaborating on meaningful techn
 
 - **GitHub:** [@yugank2612](https://github.com/yugank2612)
 - **Portfolio:** [Visit my website](https://yugank2612.github.io/yugank-portfolio/)
-- **LinkedIn:** ADD_YOUR_LINKEDIN_URL
-- **Email:** ADD_YOUR_PROFESSIONAL_EMAIL
+- **LinkedIn:** [Connect with me](https://www.linkedin.com/in/yugank-141512326/)
+- **Email:** [yugank.endofera.999@gmail.com](mailto:yugank.endofera.999@gmail.com)
 
 ---
 
